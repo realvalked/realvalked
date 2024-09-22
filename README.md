@@ -16,3 +16,5 @@ Here are some ideas to get you started:
 -->
 
 Linux Enthusiast
+
+i have a bunch of ideas but idk how to make them
