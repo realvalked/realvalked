@@ -18,3 +18,5 @@ Here are some ideas to get you started:
 Linux Enthusiast
 
 i have a bunch of ideas but idk how to put them in practice
+
+i gotta clear up my stars someday
